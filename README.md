@@ -27,3 +27,6 @@ Treat sexual harassment as a violation of the service rules and take appropriate
 Make certain that the IC sends the Annual Report to management and the District Officer. This only applies to businesses with 10 or more employees.
 
 Declare the organization's POSH Act Compliance in the Director's Report if it is registered as a business.
+
+https://muds.co.in/posh-act-2013-sexual-harassment-women-workplace/
+![image](https://user-images.githubusercontent.com/102798589/162143892-c907437f-34e6-481e-a106-90eb5bf66fc8.png)
